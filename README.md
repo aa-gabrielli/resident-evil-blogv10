@@ -1,0 +1,1 @@
+# resident-evil-blogv10
